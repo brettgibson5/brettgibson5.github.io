@@ -1,0 +1,1 @@
+All of the pictures contained in this zip file were taken by Ron Glotzbach.  You are allowed to use these pictures for the purpose of the courses CGT 356 and CGT 456.  You are also allowed to use them in your portfolio.  You are not allowed to use them professionally as your own work.  By following these guidelines, you will not infringe any copyright laws.
